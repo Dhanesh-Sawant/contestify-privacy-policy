@@ -1,1 +1,1 @@
-# contestify-privacy-policy
+# contestly-privacy-policy
